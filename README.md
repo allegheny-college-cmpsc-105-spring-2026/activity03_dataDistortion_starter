@@ -2,11 +2,11 @@
 
 ## Assigned
 
-Thursday, 29 January 2026
+Tuesday, 3 February 2026
 
 ## Due
 
-Thursday, 29 January 2026 by 11:00 AM
+Tuesday, 3 February 2026 by 4:15 PM
 
 ---
 
